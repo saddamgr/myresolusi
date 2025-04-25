@@ -1,0 +1,2 @@
+# myresolusi
+my plan
